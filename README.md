@@ -482,4 +482,6 @@ __ขอสั้นๆ :__ จะมีภูเขาหลายๆลูก 
 
 เอาล่ะครับ ได้เวลากล่าวจบแล้ว ผมไม่สนหรอกนะครับว่าสิ่งที่ผมเขียน จะทำให้ผมกลายเป็นที่รู้จักของใครหลายๆคนรึป่าว แต่แค่ขอให้สิ่งที่ผมเขียน มีประโยชน์กับใครสักคนก็พอ และนี่ก็เป็นจุดเริ่มต้นของ __"เส้นทางในสอวน. คอมพิวเตอร์ ของ opal_Inwza007x"__ ขอขอบคุณและสวัสดีครับ
 
+    “Your limit? Who decides what your limit is? Instead of overthinking your setbacks, just focus on moving forward.” -Saitama
+
 > <img src="https://github.com/opalInwza007x/opal_Inwza007x/assets/114739286/f9fc074c-887c-45bf-af8d-a280ab010797" width="500px" align="center">
